@@ -8,14 +8,14 @@
 
 # ABOUT R.S.
 
-* Ruslan Shpileuski | Vocals | Guitars | Bass | Drums
+Ruslan Shpileuski instrumental project | Vocals | Guitars | Bass | Drums
 
 # MUSIC
 
- | 
------------- | -------------
 Spotify | [Listen](https://open.spotify.com/album/6QVhvXFJZiYjt3yfacMY2h)
+
 iTunes | [Listen](https://music.yandex.ru/)
+
 Yandex Music | [Listen](https://music.yandex.ru/)
 
 
