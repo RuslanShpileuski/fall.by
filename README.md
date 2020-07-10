@@ -20,9 +20,9 @@ Vocals | Guitars | Bass | Drums
 
 Spotify | [Listen](https://open.spotify.com/album/6QVhvXFJZiYjt3yfacMY2h)
 
-iTunes | [Listen](https://music.yandex.ru/)
+iTunes | [Listen](https://geo.music.apple.com/us/album/terminator-single/1508828846?mt=1&app=music)
 
-Yandex Music | [Listen](https://music.yandex.ru/)
+Yandex Music | [Listen](https://music.yandex.ru/album/10541094)
 
 
 # FOLLOW
